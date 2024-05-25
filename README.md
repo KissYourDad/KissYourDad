@@ -1,4 +1,4 @@
-- Currently learning Chinese and German. 
+- Currently learning Chinese.
 - You can reach me basically on PT, Discord, BattleNet, Patreon. (Ask First For My Socials.)
 - Any/All pronouns, I do not care. 
 - I am Japanese/German, please do not make jokes on it. Unless I do it first. Thank you. 
