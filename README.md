@@ -1,5 +1,3 @@
-- Sup, I am @KissYourDad
-- Interested in a shit ton of things.
 - Currently learning Chinese and German. 
 - You can reach me basically on PT, Discord, BattleNet, Patreon. (Ask First For My Socials.)
 - Any/All pronouns, I do not care. 
