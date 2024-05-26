@@ -1,3 +1,4 @@
+- If you are wondering my age, I am 26 years old. 
 - Currently learning Chinese.
 - You can reach me basically on PT, Discord, BattleNet, Patreon. (Ask First For My Socials.)
 - Any/All pronouns, I do not care. 
