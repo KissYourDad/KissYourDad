@@ -9,7 +9,11 @@
 - 読んでくれてありがとう！セルフケアを忘れずに、素敵な一日をお過ごしください。
 - では、お気をつけて。
 - 愛する人へ <3 心から愛しています。
-
+- 君が誰であろうと構わないが、私を怒らせないでくれ。
+- 僕のAFKステータスはみんなのためだ。フレンドは僕が戻ったときに交流できる。
+-  私のステータスがDNDの場合は、邪魔しないでください。
+- 文化の尊重／鑑賞は有効です！どうか、私たちの文化に関わろうとする意欲のある方ならどなたでも歓迎します。
+- Culture Appriceation Is Most Welcome! 
 <!---
 KissYourDad/KissYourDad is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
