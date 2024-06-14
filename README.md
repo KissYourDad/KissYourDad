@@ -13,7 +13,7 @@
 - 僕のAFKステータスはみんなのためだ。フレンドは僕が戻ったときに交流できる。
 -  私のステータスがDNDの場合は、邪魔しないでください。
 - 文化の尊重／鑑賞は有効です！どうか、私たちの文化に関わろうとする意欲のある方ならどなたでも歓迎します。
-- Culture Appriceation Is Most Welcome! 
+- Cultural respect / appreciation is valid! 
 <!---
 KissYourDad/KissYourDad is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
