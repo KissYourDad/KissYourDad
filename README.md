@@ -3,7 +3,7 @@
  You can reach me basically on PT, Discord, BattleNet, Patreon. (Ask First For My Socials.)
  Any/All pronouns, I do not care. 
  I am Japanese/German, please do not make jokes on it. Unless I do it first. Thank you. 
- ( Yes, I speak both fluently but there will be mistakes. Time to Time with my English; Please endure with me. )
+ ( Yes, I speak both fluently but there will be mistakes, time to time with my English; Please endure with me. )
  Taken by my loving partner.
  Parents to One.
 
