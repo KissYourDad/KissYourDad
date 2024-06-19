@@ -1,3 +1,5 @@
+<img src="https://i.pinimg.com/originals/72/4a/ca/724acaa53fe6646a7bd72d27d4c05e50.jpg">
+ 
  If you are wondering my age, I am 26 years old. 
  Currently learning Chinese.
  You can reach me basically on PT, Discord, BattleNet, Patreon. (Ask First For My Socials.)
