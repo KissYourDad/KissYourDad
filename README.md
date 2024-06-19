@@ -2,7 +2,10 @@
  If you are wondering my age, I am 26 years old. 
  Currently learning Chinese.
  You can reach me basically on PT, Discord, BattleNet, Patreon. (Ask First For My Socials.)
- Any/All pronouns, I do not care. 
+ Any/All pronouns, I do not care.
+ <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e15a9051-e20c-467a-8375-90dee1a91fc4/dg1eaw9-6b7c4106-ff4e-4f1a-9c71-327c07476243.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2UxNWE5MDUxLWUyMGMtNDY3YS04Mzc1LTkwZGVlMWE5MWZjNFwvZGcxZWF3OS02YjdjNDEwNi1mZjRlLTRmMWEtOWM3MS0zMjdjMDc0NzYyNDMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.bIH0LK6DOeFpJCCvQjDHUCxOuhWtp7E6MmWVtreZcvM">
+ <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e15a9051-e20c-467a-8375-90dee1a91fc4/dfv3vnp-430fce8c-7167-40e9-9e42-4bb5ee3e029b.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2UxNWE5MDUxLWUyMGMtNDY3YS04Mzc1LTkwZGVlMWE5MWZjNFwvZGZ2M3ZucC00MzBmY2U4Yy03MTY3LTQwZTktOWU0Mi00YmI1ZWUzZTAyOWIuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.OPR64XcB-mO8TF7dkr6cuMFx30QonfolNAfdgQSZlMA">
+ 
  I am Japanese/German, please do not make jokes on it. Unless I do it first. Thank you. 
  ( Yes, I speak both fluently but there will be mistakes, time to time with my English; Please endure with me. )
  Taken by my loving partner.
