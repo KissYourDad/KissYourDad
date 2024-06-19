@@ -8,7 +8,7 @@ Volume: ■■■■■□□□
 
 <img src="https://i.pinimg.com/originals/b0/52/b6/b052b650b118eb29729f6cff51268329.jpg">
 
- <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e15a9051-e20c-467a-8375-90dee1a91fc4/dgsavby-41e5e0d1-2f95-45f7-bef2-72c3f011731a.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2UxNWE5MDUxLWUyMGMtNDY3YS04Mzc1LTkwZGVlMWE5MWZjNFwvZGdzYXZieS00MWU1ZTBkMS0yZjk1LTQ1ZjctYmVmMi03MmMzZjAxMTczMWEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.09E7zI-hdWFCHL3Aar2i043-Ic9iuvdkc8tnndvRWFg">   
+ <img src="https://i.pinimg.com/originals/0f/ef/71/0fef715ee3018b243abbe3d14cdaeb91.gif">   
  
  ⋘ 𝑃𝑙𝑒𝑎𝑠𝑒                            𝑤𝑎𝑖𝑡...                            ⋙
 
@@ -45,7 +45,7 @@ Volume: ■■■■■□□□
 
 
 # Things about me (extra!)
-<img src="https://i.pinimg.com/originals/07/18/fc/0718fceca8b0ad4bcfcf3c9b7458ca18.png">
+<img src="https://i.pinimg.com/originals/80/84/27/80842724ec7464e50027bfd9b7bce309.gif">
 𓆩⟡𓆪  I do tend to get very anxious around people and will shut off. 𓆩⟡𓆪  If I don't respond right away, or I take my time to reply, I'm falling Non-verbal. 𓆩⟡𓆪 ✧˖*°࿐
 𓆩⟡𓆪  Drama is one thing I won't be part of, unless I am sticking up for a friend or my Partner. 𓆩⟡𓆪 ✧˖*°࿐
 𓆩⟡𓆪  If you want to get my attention or need to inform me of anything, I do not like it being placed in public. Please whisper me/DM me (IF you are not from PT)  𓆩⟡𓆪 ✧˖*°࿐
